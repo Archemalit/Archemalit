@@ -3,4 +3,3 @@
 
 ---
 # Telegram: @kiz_zyaka
-# 💫Email : ArsenDivirov@yandex.ru
